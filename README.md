@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Chitanavong94
+- 👀 I’m interested in cyber security and coding
+- 🌱 I’m currently learning the basics of computer technology
+- 💞️ I’m looking to collaborate on any project that helps others! 
+- 📫 How to reach me Im a fast learner videos and books help me learn.
